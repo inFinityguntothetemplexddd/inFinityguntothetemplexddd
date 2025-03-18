@@ -1,4 +1,4 @@
-# ВСЕМ КИСКАМ ХАЙ image image penis
+# ВСЕМ КИСКАМ ХАЙ 
 
 finn/finityy!! 
 https://pin.it/4rthrbF12
