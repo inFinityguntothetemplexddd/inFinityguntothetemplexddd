@@ -7,21 +7,19 @@ https://pin.it/4rthrbF12
 She/he/any ' - YES I'M LEBANOSE.
 
 # MY FANDOMS 
-hoeverse games, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ANSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX, random, blue lock, manga
+hoeverse games, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ANSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX, random manga, blue lock,Nu carnival, dokidoki, class of 9, danganronpa -
 
 AND OTHERS!!
 
 # KINN
-
-al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri, yoshidaaaa idk
+al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' yoshidaaaa idk
 
 # FAVVVV 
 
 FREACKING LOVE SUNTURINE
 
 ivantill ! mizusua -- 
-robifly ! 
-kavetham ! furicest ! komiyaka ! scarasethos ! linneykinich 
+robifly ! argenhill ! kavetham ! furicest ! komiyaka ! scarasethos ! linneykinich 
 mioshun ! mitsuaya ! 
 AND OTHERS
 
