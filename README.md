@@ -15,11 +15,10 @@ al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' yo
 
 # FAVVVV 
 ![](https://64.media.tumblr.com/658fc35774bd2aa182dee864099764bc/3d80be896f3a3b56-c7/s100x200/1082a9ef6fa8f76a592ca0b6dfc54c36561f0f68.gifv)
-FREACKING LOVE SUNTURINE 
-![](https://64.media.tumblr.com/30b67a9beedd2f7f06cab3994bacc916/7b1a232135d766dc-e3/s100x200/2539ef03b7949fa69b6c83b888644857ab576382.pnj)
+ ![](https://64.media.tumblr.com/30b67a9beedd2f7f06cab3994bacc916/7b1a232135d766dc-e3/s100x200/2539ef03b7949fa69b6c83b888644857ab576382.pnj)
 ![](https://64.media.tumblr.com/fefb68b3e584878d213ef33207193dd2/d13331d3d6518875-70/s100x200/31dc1ae9546dba6b93411969a193c2695ec0c71a.pnj)
 
-! argenhill ! kavetham ! furicest ! komiyaka ! scarasethos ! linneykinich 
+sunturine ! argenhill ! kavetham ! furicest ! komiyaka ! scarasethos ! linneykinich 
 mioshun ! mitsuaya ! 
 AND OTHERS
 
