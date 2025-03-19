@@ -3,7 +3,9 @@
 finn/finityy!! ![](https://64.media.tumblr.com/f736d8288be5a81f8c18956b24cdce32/d079a0eca9d11bc3-68/s100x200/dce0af431d358cd9e64e8d76a87d1541cebc1e58.gifv)
 
 # PRONOUSE 
-She/he/any ' - YES I'M LEBANOSE. ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/b5a876687463ce1a9996727af3e6ab3c/3ed0a247c1f0a4cb-f3/s100x200/efccbae1865167574242339b036b6626d7063f19.gifv)
+She/he/any ' - YES I'M LEBANOSE. ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/b5a876687463ce1a9996727af3e6ab3c/3ed0a247c1f0a4cb-f3/s100x200/efccbae1865167574242339b036b6626d7063f19.gifv) 
+![Kitty](https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv) ![stupid](https://github.com/user-attachments/assets/2958ef86-f30e-4a16-a284-9d5450d469b3)
+![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv)
 
 # MY FANDOMS 
 hoeverse games, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ANSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX, random manga, blue lock,Nu carnival, dokidoki, class of 9, danganronpa - 
