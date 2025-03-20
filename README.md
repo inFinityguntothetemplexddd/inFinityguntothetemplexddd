@@ -3,7 +3,7 @@
 ![](https://64.media.tumblr.com/f736d8288be5a81f8c18956b24cdce32/d079a0eca9d11bc3-68/s100x200/dce0af431d358cd9e64e8d76a87d1541cebc1e58.gifv) ![Kitty](https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv) - finn//finity !
 # ![](https://komarev.com/ghpvc/?username=FINNitys&color=blueviolet&style=for-the-badge) ![image](https://github.com/user-attachments/assets/0dc9f630-b7ed-4220-8b34-cc8a3039afb5)
 # PRONOUNSE 
-She/he/any ' - YES I'M LEBANOSE. ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/b5a876687463ce1a9996727af3e6ab3c/3ed0a247c1f0a4cb-f3/s100x200/efccbae1865167574242339b036b6626d7063f19.gifv) ![stupid](https://github.com/user-attachments/assets/2958ef86-f30e-4a16-a284-9d5450d469b3)
+She/he/any ' - ![image](https://github.com/user-attachments/assets/85f1f8ae-2c46-454d-bb81-1d0875bdcd67)  ' ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/b5a876687463ce1a9996727af3e6ab3c/3ed0a247c1f0a4cb-f3/s100x200/efccbae1865167574242339b036b6626d7063f19.gifv) ![stupid](https://github.com/user-attachments/assets/2958ef86-f30e-4a16-a284-9d5450d469b3)
 ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv)
 
 # MY FANDOMS 
@@ -13,7 +13,7 @@ AND OTHERS!! ![](https://64.media.tumblr.com/83f609dab146206ecb4ee7690d2339f4/c8
 
 # KINN
 al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' yoshidaaaa idk 
-![image](https://github.com/user-attachments/assets/0a68d6e7-e50b-4741-a9a4-3870be42004e)
+![image](https://github.com/user-attachments/assets/0a68d6e7-e50b-4741-a9a4-3870be42004e) ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca) 
 
 
 # FAVVVV 
