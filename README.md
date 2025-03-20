@@ -7,7 +7,7 @@ She/he/any ' - YES I'M LEBANOSE. ![](https://64.media.tumblr.com/acdb64e755a066c
 ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv)
 
 # MY FANDOMS 
-hoeverse games, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ANSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX, random manga, blue lock,Nu carnival, dokidoki, class of 9, danganronpa - 
+hoeverse games, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ANSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX, random manga, blue lock,Nu carnival, dokidoki, class of 9, danganronpa, mortal combat - 
 
 AND OTHERS!! ![](https://64.media.tumblr.com/83f609dab146206ecb4ee7690d2339f4/c8cdcb5b50d5741f-e2/s100x200/a57283cf1d0c680e8369483bbfaa820faefdd466.gifv)
 
@@ -24,7 +24,7 @@ al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' yo
 ![](https://64.media.tumblr.com/30b67a9beedd2f7f06cab3994bacc916/7b1a232135d766dc-e3/s100x200/2539ef03b7949fa69b6c83b888644857ab576382.pnj)
 ![](https://64.media.tumblr.com/fefb68b3e584878d213ef33207193dd2/d13331d3d6518875-70/s100x200/31dc1ae9546dba6b93411969a193c2695ec0c71a.pnj)
 ![](https://64.media.tumblr.com/3b1bb20e1b0974777a638f91ab988642/aa3450e73c80eefc-85/s100x200/1b87e7cb97f483cbb6b99b04fcae028b00489065.gifv)   ![](https://64.media.tumblr.com/555771d47537881962e1086fa5f0cdce/3ed0a247c1f0a4cb-e0/s100x200/33aaefe5d8057d989667130602f9ae38877578b2.pnj) ![](https://64.media.tumblr.com/4f6482c28dcd655474c35016568c2614/eb944e06e4e7a5c5-16/s100x200/5502406862452be0616c905213916d2666bf1c5a.gifv) ![](https://64.media.tumblr.com/742b8e554e3f882a0b4fb1e2809cc990/a5fb0a01d05599b0-17/s100x200/e54c06a29b80f449ed7182798c6ebe9e5a8dda2c.pnj)
---- ! argenhill ! kavetham ! furicest ! komiyaka ! scarasethos ! linneykinich ! mioshun ! mitsuaya ! 
+--- ! argenhill ! kavetham ! furicest ! komiyaka ! scarasethos ! linneykinich ! mioshun ! mitsuaya ! HIYONAGI
 AND OTHERS
 
 
