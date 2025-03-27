@@ -7,9 +7,8 @@ She/he/any ' - ![image](https://github.com/user-attachments/assets/85f1f8ae-2c46
 ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv)
 
 # MY FANDOMS 
-hoeverse games, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ANSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX, random manga, blue lock,Nu carnival, dokidoki, class of 9, danganronpa, mortal combat - 
+hoeverse games, multifandom, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ANSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX, strangerthings, owlhouse, amphibia, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat - AND OTHERS!! ![](https://64.media.tumblr.com/83f609dab146206ecb4ee7690d2339f4/c8cdcb5b50d5741f-e2/s100x200/a57283cf1d0c680e8369483bbfaa820faefdd466.gifv)
 
-AND OTHERS!! ![](https://64.media.tumblr.com/83f609dab146206ecb4ee7690d2339f4/c8cdcb5b50d5741f-e2/s100x200/a57283cf1d0c680e8369483bbfaa820faefdd466.gifv)
 
 # KINN
 al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' yoshidaaaa idk 
