@@ -8,11 +8,11 @@ SHE / HE / ANY  ' -  ![](https://64.media.tumblr.com/abb10af1df427b2cc8a5914829b
 ![tumblr_573dfa41ac4294022b6b28110b272ef1_26c2475f_100](https://github.com/user-attachments/assets/a3336b2b-296c-48bb-8f65-5647206dd2f7) 
 
 # MY FANDOMS 
-hoeverse games, multifandom, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ANSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX, strangerthings, owlhouse, amphibia, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat - AND OTHERS!! ![](https://64.media.tumblr.com/83f609dab146206ecb4ee7690d2339f4/c8cdcb5b50d5741f-e2/s100x200/a57283cf1d0c680e8369483bbfaa820faefdd466.gifv) ![image](https://github.com/user-attachments/assets/39cd9fa8-642e-4047-9dc6-c651b6a9f5c2) 
+hoeverse games, multifandom, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ANSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX, strangerthings, owlhouse, amphibia, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC - AND OTHERS!! ![](https://64.media.tumblr.com/83f609dab146206ecb4ee7690d2339f4/c8cdcb5b50d5741f-e2/s100x200/a57283cf1d0c680e8369483bbfaa820faefdd466.gifv) ![image](https://github.com/user-attachments/assets/39cd9fa8-642e-4047-9dc6-c651b6a9f5c2) 
 
 
 # KINN
-al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' neuvilette ' collector/king ' yoshidaaaa  idk ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca) 
+al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' neuvilette ' collector/king ' hobie brown spider punk ' yoshidaaaa  idk ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca) 
 
 
 
