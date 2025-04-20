@@ -1,4 +1,4 @@
-# ![](https://64.media.tumblr.com/5188f8d701d3e86e3f638afec106269f/47491f97d9273faa-78/s2048x3072/5f534f305df35116e601c129a787c4d08d50f685.pnj)
+# ![](https://64.media.tumblr.com/886b6f4623e78f3e25015b64dd82e889/397f7712f78dd980-a2/s1280x1920/c2571031d64b183e025c3a1695e1f5c2ee53d54b.pnj)
 # ВСЕМ КИСКАМ ХАЙ  
 # ![](https://64.media.tumblr.com/49832240dc434b1cf0de44090fa55009/b7819b87512a287e-50/s1280x1920/890423b0ad46cea5e7798e09e6a723a5e6860ac5.pnj)
 ![](https://64.media.tumblr.com/f736d8288be5a81f8c18956b24cdce32/d079a0eca9d11bc3-68/s100x200/dce0af431d358cd9e64e8d76a87d1541cebc1e58.gifv)  - **FINN>_<FINITY !**   ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv) ![](https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv) . *тгк с записями душевно больного >>* [🍓](https://t.me/L0stinyourIris ) !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif)
