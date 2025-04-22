@@ -9,7 +9,7 @@
 - ![](https://64.media.tumblr.com/abb10af1df427b2cc8a5914829b0a1c0/00fb8ddee1cc3f2b-a3/s75x75_c1/e83f2d16da79aab0280539d3a6cd135399c3b6f9.gifv)
 - ![](https://64.media.tumblr.com/803987cfd4c4f065e7bcf9edabf6d189/17390c1c19cc6c29-76/s75x75_c1/a97a39f4328f8856db801c4e1a939511e15e0f98.gifv)
 - ![](https://64.media.tumblr.com/26f69c621842612c8a907cfd1fd3be87/e018519d595eb0b7-8c/s75x75_c1/21661e5a0c041ad11e73d1c1ba22a383fd218851.gifv) ![stupid](https://github.com/user-attachments/assets/2958ef86-f30e-4a16-a284-9d5450d469b3) ![](https://64.media.tumblr.com/aa6df5045151b4c8314fcc2318cb5ed1/461cc38b10614ee7-62/s75x75_c1/b75646130aae60c29337ed512da92919aecb1c78.gifv) ![54cba3ca77bf8d90f40edea7ef26518e (1)](https://github.com/user-attachments/assets/dc49cf79-de7d-4982-adc7-eccf81610ead) ![image](https://github.com/user-attachments/assets/3af9797b-2018-407c-9bef-b65c26850e85) ![image](https://github.com/user-attachments/assets/90ed55e8-44a3-46ef-b3d3-4b93d703097d)
-   
+  
 - # WHO I LISTEN ?
 - *linkin park,avenged sevenfold,Red hot chell peppers,radiohead,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,guns and roses,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,curedeftones + others*
 - **some russian shit like** : *Валентин Стыкало, Иван дорн, Дурной вкус, Электрофорез и другие.*
@@ -22,7 +22,7 @@
 - ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca) 
 
 
-
+ 
 - # M E CORE
 ![](https://64.media.tumblr.com/8fcbe58cae41292d6664bda8011d6f16/c8cdcb5b50d5741f-b4/s100x200/9dce5aa59d2a4f7d136a934db32a84ae2c50b429.gifv)  < < ![image](https://github.com/user-attachments/assets/9b5da588-75a6-48db-96c4-2a7cf73c9a76) 
 ![](https://64.media.tumblr.com/8d4542677651c27eeb78d37d90baa3cd/a275af98f60f2295-3e/s250x400/8c76c475a551b5ab5b93f6e8173d0b530cbad0db.gifv)
