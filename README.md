@@ -12,8 +12,8 @@
 -  ![](https://64.media.tumblr.com/0d2f9a7eee84da53cfd393a90da72b14/473928ea48888009-5d/s250x400/b58a4626344f3608b7e61bd3e613b906fc9c0b62.pnj)
   
 - # WHO I LISTEN ? 
-- *linkin park,avenged sevenfold,Red hot chell peppers,radiohead,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,guns and roses,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,curedeftones + others*
-- **some russian shit like** : *Валентин Стыкало, Иван дорн, Дурной вкус, Электрофорез и другие.*
+- *linkin park,avenged sevenfold,Red hot chell peppers,radiohead,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,guns and roses,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore + others*
+- **some russian shit like** : *Валентин Стрыкало, Иван дорн, Дурной вкус, Электрофорез и другие.*
                                                                
 - # MY FANDOMS 
 - *hoeverse games, multifandom, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX series, strangerthings, owlhouse, amphibia, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
