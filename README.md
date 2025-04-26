@@ -2,7 +2,7 @@
 # ВСЕМ КИСКАМ ХАЙ ✦  !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif) ![](https://64.media.tumblr.com/6bc0d30a188342a200824e1f4fb0a096/ec4e0e3064314d61-95/s75x75_c1/188099f20ab3d825c3862f7c5906fb6e409f355a.gifv)
 # ![](https://64.media.tumblr.com/49832240dc434b1cf0de44090fa55009/b7819b87512a287e-50/s1280x1920/890423b0ad46cea5e7798e09e6a723a5e6860ac5.pnj)
 - *call me* -  **FINN>_<FINITY !** 
--  ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv) ![](https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv)   ![](https://64.media.tumblr.com/c91561bef16f3ae1a90be300a16904e3/e00fb671dc1925c4-4c/s100x200/f926a5c2944550fcf86047d0698ab5e17f87398f.gifv) 
+-  ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv) ![](https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv)   
 #  ![image](https://github.com/user-attachments/assets/0dc9f630-b7ed-4220-8b34-cc8a3039afb5)  ㅤ![](https://komarev.com/ghpvc/?username=inFinityguntothetemplexddd&style=for-the-badge&color=cd9390&label=:3)                                                                                                                                
 - # PRONOUNSE  ![](https://64.media.tumblr.com/9b4986897d09b591cf5819a9fa000855/b70054f22ba99afe-66/s75x75_c1/061e7bec393d59442ee5d3afb9303a8203190010.gifv)
 - *S H E / H E / A N Y*  '  ![](https://64.media.tumblr.com/7a5d1c50b09be08a587345761c2be45a/8fa449870110a9e7-a3/s100x200/ff77ca99723ac344c94bdb23fed39160eec965bd.gifv)    
@@ -38,13 +38,22 @@
 
  ![](https://64.media.tumblr.com/5fa8bbb9c7be844eb4bddd15aec31ae8/025e09ed06cb7254-d7/s400x600/874ea42ba04d8242a2935f5622d398762850ce81.pnj)                                                             
 
+- # фикс КСЮШИ на капусту ![](https://64.media.tumblr.com/c91561bef16f3ae1a90be300a16904e3/e00fb671dc1925c4-4c/s100x200/f926a5c2944550fcf86047d0698ab5e17f87398f.gifv) ![](https://64.media.tumblr.com/8ef74776c2e6b1f6590626ba21642566/b9bcd6f144c63428-f7/s100x200/aecfccc7702b08063d96a7d059f748dbadfffb7b.pnj)  ![](https://64.media.tumblr.com/ed9e0b63c09c31697b1eac13c92d218c/b9bcd6f144c63428-f0/s100x200/1a8eb4d85257e4cfaba03c4b186aa24b689f1e14.pnj)
+
+![](https://64.media.tumblr.com/b1d74082fb4c1c08136a46ce3a915fda/35784feea8ad6d6c-9a/s640x960/79e6c31afe934511ee227f3dd626999a000b048b.pnj)
+![](https://64.media.tumblr.com/b9c593e41b4cb104355a381caf4a934d/04250da736e1930d-ab/s640x960/74da84032c8830ce9ef500c0f5304c3f4a1a719d.gifv) 
+-  ![](https://64.media.tumblr.com/bb13d3bff88611e17f04de99520ec404/3e83dfa3b8ae5f84-bb/s400x600/61ef58037d955d2a4dac11ef454edc749e33d033.pnj)
+-  ![](https://64.media.tumblr.com/cc1a1a07e4f111d8d2176b44ed53a3fe/f207816314d41ee4-ea/s400x600/e723968afb54ee95025a342845a314489cec892d.jpg) ![](https://64.media.tumblr.com/51d1ba0093343962c345d350cb1ea1be/12e67ff32a969332-fc/s1280x1920/8dc33151da87ccb8a38cca8a5f837d8745c9ad8e.pnj)
+-   ![](https://64.media.tumblr.com/b1b395fb470a4d02864d740ea4efe78c/c52d97ebe0e27f27-d3/s500x750/d1dcdb382dd310151442ba6a56ec14dcdc03ef30.pnj)![](https://64.media.tumblr.com/a584e380a29bcbc0d628bf9fbdf07aa3/c52d97ebe0e27f27-27/s500x750/13780316cf46b9f6b207242358b689fc9a7b0af8.pnj)
+![](https://64.media.tumblr.com/f0774050c4d772abcf114fafd5e86047/35784feea8ad6d6c-9d/s640x960/a0a19fb1e1d2a493f029743aa93effc92a634e7d.pnj)
 - # **АВАНЦ*О ДЛЯ АРИНЫ И САШИ** ![](https://64.media.tumblr.com/5392c826e46fb4c30467e099aed3d95b/bf70ded9225faad7-bd/s75x75_c1/bedf0467604682f47f1fcf137f2f61b0742e36d6.gifv)   ![](https://64.media.tumblr.com/a1b8448cfb08d672029e2e858919021b/d66de075ce1218fe-64/s2048x3072/a8f00ce20b676bbcc6ddac41bb402836ed60ab2f.pnj) 
 - # ДЛЯ МАРГО ! ! 
 -  ![](https://64.media.tumblr.com/d28c6a0f9d75de78e29d8ebf3702a233/3ac04bf7703eb82d-11/s1280x1920/6b5204d2d720539cea2c9394ad8aa7f98b65fdf5.pnj)
 -  # NИКА НА СВО
--  ![](https://64.media.tumblr.com/89fed7afddd407dae2dc355c0dead463/ab97f3b6e11b09bd-f6/s1280x1920/4f40ed606132435351635afea4bd83a263db5ec5.pnj)
+ ![](https://64.media.tumblr.com/89fed7afddd407dae2dc355c0dead463/ab97f3b6e11b09bd-f6/s1280x1920/4f40ed606132435351635afea4bd83a263db5ec5.pnj)
 -  ![](https://64.media.tumblr.com/cf6754b4a110bfa80acd0949cc0d1f90/42ad9870bfe5f055-ae/s400x600/a2d10e550648a5adda6257feb842009f697014c8.gifv)
--   ![](https://64.media.tumblr.com/3d326686714dbba6f6e4f99727e99431/ac60f0fb608318f4-73/s2048x3072/1b3c1c539c42c8c485ca66295a619f58a857a6d1.jpg) ![](https://64.media.tumblr.com/89fed7afddd407dae2dc355c0dead463/ab97f3b6e11b09bd-f6/s1280x1920/4f40ed606132435351635afea4bd83a263db5ec5.pnj) 
+ ![](https://64.media.tumblr.com/89fed7afddd407dae2dc355c0dead463/ab97f3b6e11b09bd-f6/s1280x1920/4f40ed606132435351635afea4bd83a263db5ec5.pnj) 
+-   ![](https://64.media.tumblr.com/3d326686714dbba6f6e4f99727e99431/ac60f0fb608318f4-73/s2048x3072/1b3c1c539c42c8c485ca66295a619f58a857a6d1.jpg) 
 - # PLEASE DON'T INTERACT IF IM WITH BFFS!! ![](https://64.media.tumblr.com/8f131e7076b94d48e8854a7443b4996d/5826926a3a081544-20/s75x75_c1/5df7143554e707e06c3bbbba3d92aede17e55d3a.gifv)
 - # THATS ALL ![](https://64.media.tumblr.com/ba0e32669f96ddc2fd8c72fc30251eda/ce6e3d46a9820ef3-8a/s250x400/2e3db6aef6d6e048fe27daf1789a64e8e1444564.pnj) ![](https://64.media.tumblr.com/65b6b63b4d2a85d70e0efe6b1686b5b4/9f08db4a6bc68ebd-b0/s1280x1920/4fc8c62ab8d2f86fbff1dfd544d26ce767296138.pnj)
 # ![](https://64.media.tumblr.com/e0db40bbad678f4ed81baec692126930/60e59f40179d3091-b2/s2048x3072/365ba73788b016a4705bcbe0d63c2179fae5a65c.pnj)
