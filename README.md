@@ -1,6 +1,6 @@
-# ![](https://64.media.tumblr.com/886b6f4623e78f3e25015b64dd82e889/397f7712f78dd980-a2/s1280x1920/c2571031d64b183e025c3a1695e1f5c2ee53d54b.pnj)
-# ВСЕМ КИСКАМ ХАЙ ✦  !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif) ![](https://64.media.tumblr.com/6bc0d30a188342a200824e1f4fb0a096/ec4e0e3064314d61-95/s75x75_c1/188099f20ab3d825c3862f7c5906fb6e409f355a.gifv)
 # ![](https://64.media.tumblr.com/49832240dc434b1cf0de44090fa55009/b7819b87512a287e-50/s1280x1920/890423b0ad46cea5e7798e09e6a723a5e6860ac5.pnj)
+# *КИСКАМ ХАЙ* ✦  !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif) ![](https://64.media.tumblr.com/6bc0d30a188342a200824e1f4fb0a096/ec4e0e3064314d61-95/s75x75_c1/188099f20ab3d825c3862f7c5906fb6e409f355a.gifv)
+# ![](https://64.media.tumblr.com/886b6f4623e78f3e25015b64dd82e889/397f7712f78dd980-a2/s1280x1920/c2571031d64b183e025c3a1695e1f5c2ee53d54b.pnj)
 - *call me* -  **FINN>_<FINITY !** 
 -  ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv) ![](https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv)   
 #  ![image](https://github.com/user-attachments/assets/0dc9f630-b7ed-4220-8b34-cc8a3039afb5)  ㅤ![](https://komarev.com/ghpvc/?username=inFinityguntothetemplexddd&style=for-the-badge&color=blue&label=:3)                                                                                                                                
