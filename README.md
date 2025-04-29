@@ -20,7 +20,14 @@
 - ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/f04d2340b39aee1ecec6f9dd0d236cf4/87121c68522c0be2-b7/s100x200/f0f7884d7c0e69efad658bbbba8d128d036a23d1.gifv) ![](https://64.media.tumblr.com/7e3851edaf934bdf90c4e477bbf39c92/ff58a3af22f3bbb7-65/s100x200/b47f0f6bcee75a19770a2e78967b2a6964089d5d.pnj)
 - # KINN
 - *al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' neuvilette ' collector/king ' hobie brown spider punk ' yoshidaaaa  idk*
-- ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca) 
+- ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca)
+
+- # INT
+- *роблоксхаус, хиенаги, любители пообсуждать лор, знающие мои фд, любители исполнителей упомянутых выше, спокойные люди, без шуток пересекающих грань, кто хотел бы познакомиться со мной!!*
+
+
+  
+- **DNI** *как таковых у меня нет, стараюсь относиться ко всему нейтрально* :3
 
 
  
@@ -58,8 +65,8 @@
 
 ![](https://64.media.tumblr.com/d7bfa88577d8a7480b40e0ed435d364f/385d9e6bdabc9a73-64/s1280x1920/229c58e9beb2d3e3b2b94578dc2e6f16bfa0e6e8.pnj)
  
-- # **АВАНЦ*О ДЛЯ АРИНЫ И САШИ* ![](https://64.media.tumblr.com/5392c826e46fb4c30467e099aed3d95b/bf70ded9225faad7-bd/s75x75_c1/bedf0467604682f47f1fcf137f2f61b0742e36d6.gifv)   ![](https://64.media.tumblr.com/a1b8448cfb08d672029e2e858919021b/d66de075ce1218fe-64/s2048x3072/a8f00ce20b676bbcc6ddac41bb402836ed60ab2f.pnj) 
-- # *ДЛЯ МАРГО* ! ! 
+- # *АВАНЦ*О ДЛЯ АРИНЫ И САШИ* ![](https://64.media.tumblr.com/5392c826e46fb4c30467e099aed3d95b/bf70ded9225faad7-bd/s75x75_c1/bedf0467604682f47f1fcf137f2f61b0742e36d6.gifv)   ![](https://64.media.tumblr.com/a1b8448cfb08d672029e2e858919021b/d66de075ce1218fe-64/s2048x3072/a8f00ce20b676bbcc6ddac41bb402836ed60ab2f.pnj) 
+- # *ДЛЯ МАРГО ГЕЙБЕДОВНЫ* ! ! 
 -  ![](https://64.media.tumblr.com/d28c6a0f9d75de78e29d8ebf3702a233/3ac04bf7703eb82d-11/s1280x1920/6b5204d2d720539cea2c9394ad8aa7f98b65fdf5.pnj)
 -  # *NИКА НА СВО*
  ![](https://64.media.tumblr.com/89fed7afddd407dae2dc355c0dead463/ab97f3b6e11b09bd-f6/s1280x1920/4f40ed606132435351635afea4bd83a263db5ec5.pnj)
