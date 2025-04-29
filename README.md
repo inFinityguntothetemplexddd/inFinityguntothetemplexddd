@@ -3,7 +3,8 @@
 # ![](https://64.media.tumblr.com/886b6f4623e78f3e25015b64dd82e889/397f7712f78dd980-a2/s1280x1920/c2571031d64b183e025c3a1695e1f5c2ee53d54b.pnj)
 - *call me* -  **FINN>_<FINITY !** 
 -  ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv) ![](https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv)   
-#  ![image](https://github.com/user-attachments/assets/0dc9f630-b7ed-4220-8b34-cc8a3039afb5)  ㅤ![](https://komarev.com/ghpvc/?username=inFinityguntothetemplexddd&style=for-the-badge&color=91bdeb&label=:3)                                                                                                                                
+#  ![image](https://github.com/user-attachments/assets/0dc9f630-b7ed-4220-8b34-cc8a3039afb5)  ㅤ![](https://komarev.com/ghpvc/?username=inFinityguntothetemplexddd&style=for-the-badge&color=91bdeb&label=:3) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316lnypiwkemhvnq4warxp464fwm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)                                                                                                                              
 - # PRONOUNSE  ![](https://64.media.tumblr.com/9b4986897d09b591cf5819a9fa000855/b70054f22ba99afe-66/s75x75_c1/061e7bec393d59442ee5d3afb9303a8203190010.gifv)
 - *S H E / H E / A N Y*  '  ![](https://64.media.tumblr.com/7a5d1c50b09be08a587345761c2be45a/8fa449870110a9e7-a3/s100x200/ff77ca99723ac344c94bdb23fed39160eec965bd.gifv)    
 - ![](https://64.media.tumblr.com/abb10af1df427b2cc8a5914829b0a1c0/00fb8ddee1cc3f2b-a3/s75x75_c1/e83f2d16da79aab0280539d3a6cd135399c3b6f9.gifv)
