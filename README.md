@@ -28,7 +28,7 @@
 
 
   
-- **DNI** *как таковых у меня нет, стараюсь относиться ко всему нейтрально* :3
+- **DNI** *как таковых у меня нет, отношусь ко всему нейтрально. **ships** interact I don't really care unless if it's deemed problematic / wild cross-ship*
 
 
  
