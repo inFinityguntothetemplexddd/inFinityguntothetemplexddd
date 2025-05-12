@@ -1,3 +1,6 @@
+<div align="center">  
+  
+  
 # ![](https://64.media.tumblr.com/49832240dc434b1cf0de44090fa55009/b7819b87512a287e-50/s1280x1920/890423b0ad46cea5e7798e09e6a723a5e6860ac5.pnj)
 # *КИСКАМ ХАЙ* ✦  !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif) ![](https://64.media.tumblr.com/6bc0d30a188342a200824e1f4fb0a096/ec4e0e3064314d61-95/s75x75_c1/188099f20ab3d825c3862f7c5906fb6e409f355a.gifv)
 # ![](https://64.media.tumblr.com/886b6f4623e78f3e25015b64dd82e889/397f7712f78dd980-a2/s1280x1920/c2571031d64b183e025c3a1695e1f5c2ee53d54b.pnj)
@@ -13,22 +16,24 @@
 -  ![](https://64.media.tumblr.com/0d2f9a7eee84da53cfd393a90da72b14/473928ea48888009-5d/s250x400/b58a4626344f3608b7e61bd3e613b906fc9c0b62.pnj)
   
 - # WHO I LISTEN ? 
-- **R A D I O H E A D**,*linkin park,avenged sevenfold,Red hot chell peppers,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,guns and roses,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,Metallica,d4vd,Nirvana + others*
-- **some russian shit like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
+ **R A D I O H E A D**,*linkin park,avenged sevenfold,Red hot chell peppers,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,guns and roses,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,Metallica,d4vd,Nirvana + others*
+ **some russian shit like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
                                                                
 - # MY FANDOMS 
-- *hoeverse games, multifandom, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX series, strangerthings, owlhouse, amphibia, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
+ *hoeverse games, multifandom, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX series, strangerthings, owlhouse, amphibia, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
 - ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/f04d2340b39aee1ecec6f9dd0d236cf4/87121c68522c0be2-b7/s100x200/f0f7884d7c0e69efad658bbbba8d128d036a23d1.gifv) ![](https://64.media.tumblr.com/7e3851edaf934bdf90c4e477bbf39c92/ff58a3af22f3bbb7-65/s100x200/b47f0f6bcee75a19770a2e78967b2a6964089d5d.pnj)
 - # KINN
-- *al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' neuvilette ' collector/king ' hobie brown spider punk ' yoshidaaaa  idk*
-- ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca)
+ *al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' neuvilette ' collector/king ' hobie brown spider punk ' yoshidaaaa  idk*
+ ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca)
 # ![](https://64.media.tumblr.com/e389b5067f0944dfbd1d2ec7ab55bb38/2bfccfaf01ea3a48-76/s400x600/79e938ce782d6ae281b8f3ad60e2cec413695c2c.gifv)
-- # INT
-- *роблоксхаус, хиенаги, любители пообсуждать лор, знающие мои фд, любители исполнителей упомянутых выше, спокойные люди, без шуток пересекающих грань, кто хотел бы познакомиться со мной!!*
+-  # INT
+ *роблоксхаус, hiyonagi, wlw lover's, kavetham, my fandom's, listening deftones, friendly people !*
 
-
+<div align="center">                                                                           
   
-- **DNI** *как таковых у меня нет, отношусь ко всему нейтрально. **ships** interact I don't really care unless if it's deemed problematic / wild cross-ship*
+ - # DNI 
+   
+  **absolutely basic** - *homoph0bic, transph0bic, xenoph0bic, w1r supp0rter, misgendering, only mlw, sucker's, incest.     **ships** interact I don't really care unless if it's deemed problematic / wild cross-ship*
 
 
  
@@ -44,7 +49,10 @@
   ![](https://64.media.tumblr.com/ea4eb26ce1c0ce638067f99efe9178c0/ccb6332a8fea02c1-54/s100x200/e1e0b96de486764a240c15c17c8c7acba56e1683.pnj)
 - ![](https://64.media.tumblr.com/f05ac117c2fe14e29c2541cbc42de7f0/7888016433cd22c5-77/s640x960/577af0589fe65670a9114f66e26da8d9f4905ae9.gifv)
 
- ![](https://64.media.tumblr.com/5fa8bbb9c7be844eb4bddd15aec31ae8/025e09ed06cb7254-d7/s400x600/874ea42ba04d8242a2935f5622d398762850ce81.pnj)                                                             
+ ![](https://64.media.tumblr.com/5fa8bbb9c7be844eb4bddd15aec31ae8/025e09ed06cb7254-d7/s400x600/874ea42ba04d8242a2935f5622d398762850ce81.pnj)                                                    
+ 
+ - # FOR MY SWEETEST POOKIES
+ 
 
 - # *фикс КСЮШИ на капусту* ![](https://64.media.tumblr.com/c91561bef16f3ae1a90be300a16904e3/e00fb671dc1925c4-4c/s100x200/f926a5c2944550fcf86047d0698ab5e17f87398f.gifv) ![](https://64.media.tumblr.com/8ef74776c2e6b1f6590626ba21642566/b9bcd6f144c63428-f7/s100x200/aecfccc7702b08063d96a7d059f748dbadfffb7b.pnj)  ![](https://64.media.tumblr.com/ed9e0b63c09c31697b1eac13c92d218c/b9bcd6f144c63428-f0/s100x200/1a8eb4d85257e4cfaba03c4b186aa24b689f1e14.pnj)
 ![](https://64.media.tumblr.com/b1d74082fb4c1c08136a46ce3a915fda/35784feea8ad6d6c-9a/s640x960/79e6c31afe934511ee227f3dd626999a000b048b.pnj)
