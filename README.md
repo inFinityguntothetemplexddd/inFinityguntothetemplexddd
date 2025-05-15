@@ -56,7 +56,9 @@
  
 
 - # *фикс КСЮШИ на капусту* ![](https://64.media.tumblr.com/c91561bef16f3ae1a90be300a16904e3/e00fb671dc1925c4-4c/s100x200/f926a5c2944550fcf86047d0698ab5e17f87398f.gifv) ![](https://64.media.tumblr.com/8ef74776c2e6b1f6590626ba21642566/b9bcd6f144c63428-f7/s100x200/aecfccc7702b08063d96a7d059f748dbadfffb7b.pnj)  ![](https://64.media.tumblr.com/ed9e0b63c09c31697b1eac13c92d218c/b9bcd6f144c63428-f0/s100x200/1a8eb4d85257e4cfaba03c4b186aa24b689f1e14.pnj)
-![](https://64.media.tumblr.com/b1d74082fb4c1c08136a46ce3a915fda/35784feea8ad6d6c-9a/s640x960/79e6c31afe934511ee227f3dd626999a000b048b.pnj)
+- *спа самоед] whispers: я хочу принудить хиери русалку и заставить отложить икру и высиживать от меня русалят*
+- *[мамы почему не пишите] whispers: а он будет со мной размножаться я рожу от него маленьких чёрненьких альфачонков щеночков*
+- ![](https://64.media.tumblr.com/b1d74082fb4c1c08136a46ce3a915fda/35784feea8ad6d6c-9a/s640x960/79e6c31afe934511ee227f3dd626999a000b048b.pnj)
 ![](https://64.media.tumblr.com/b9c593e41b4cb104355a381caf4a934d/04250da736e1930d-ab/s640x960/74da84032c8830ce9ef500c0f5304c3f4a1a719d.gifv) 
 -  ![](https://64.media.tumblr.com/bb13d3bff88611e17f04de99520ec404/3e83dfa3b8ae5f84-bb/s400x600/61ef58037d955d2a4dac11ef454edc749e33d033.pnj)
 -  ![](https://64.media.tumblr.com/cc1a1a07e4f111d8d2176b44ed53a3fe/f207816314d41ee4-ea/s400x600/e723968afb54ee95025a342845a314489cec892d.jpg) ![](https://64.media.tumblr.com/51d1ba0093343962c345d350cb1ea1be/12e67ff32a969332-fc/s1280x1920/8dc33151da87ccb8a38cca8a5f837d8745c9ad8e.pnj)
