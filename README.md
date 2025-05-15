@@ -61,21 +61,24 @@
 -  ![](https://64.media.tumblr.com/bb13d3bff88611e17f04de99520ec404/3e83dfa3b8ae5f84-bb/s400x600/61ef58037d955d2a4dac11ef454edc749e33d033.pnj)
 -  ![](https://64.media.tumblr.com/cc1a1a07e4f111d8d2176b44ed53a3fe/f207816314d41ee4-ea/s400x600/e723968afb54ee95025a342845a314489cec892d.jpg) ![](https://64.media.tumblr.com/51d1ba0093343962c345d350cb1ea1be/12e67ff32a969332-fc/s1280x1920/8dc33151da87ccb8a38cca8a5f837d8745c9ad8e.pnj)
 -   ![](https://64.media.tumblr.com/b1b395fb470a4d02864d740ea4efe78c/c52d97ebe0e27f27-d3/s500x750/d1dcdb382dd310151442ba6a56ec14dcdc03ef30.pnj)![](https://64.media.tumblr.com/a584e380a29bcbc0d628bf9fbdf07aa3/c52d97ebe0e27f27-27/s500x750/13780316cf46b9f6b207242358b689fc9a7b0af8.pnj)
+- ` Do not inter written on the doorway, why can't everyone just go away. except you, you can stay. `
 ![](https://64.media.tumblr.com/f0774050c4d772abcf114fafd5e86047/35784feea8ad6d6c-9d/s640x960/a0a19fb1e1d2a493f029743aa93effc92a634e7d.pnj)
 
-- # *НЭО любит чайльда паровозиком* ![](https://64.media.tumblr.com/3965659a9ae196fab06e02ee2ab00fa7/0eb6c0ca0f0e4b92-7c/s75x75_c1/a05e640e81884defe1cf9b480dc33c1307496e83.gifv)
-
+- # *НЭО любит чайльда паровозиком*  ![](https://64.media.tumblr.com/3965659a9ae196fab06e02ee2ab00fa7/0eb6c0ca0f0e4b92-7c/s75x75_c1/a05e640e81884defe1cf9b480dc33c1307496e83.gifv)
+- **DOTTOLEI INT INT INT INT INT INT**
 ![](https://64.media.tumblr.com/f6a13d4884611aa2e4d13f274eb97ca2/caf96ee0a141d618-51/s1280x1920/fefbd7b2ed0d713cf3db3ec3d0ed246a95e2396c.pnj)   
-- ![](https://64.media.tumblr.com/e4e5bbb3342ae8c98fc27a657476433e/0d148052dd40b737-a7/s1280x1920/eb1076b9dc10bcac04cd23bdbaff230c4b1aa6b4.pnj)  ![](https://64.media.tumblr.com/575ff8913c69c1b4aa37456ff80a068f/caf96ee0a141d618-16/s1280x1920/279748edcff9abee144bf68b3cf4949762886665.pnj) 
+ ![](https://64.media.tumblr.com/e4e5bbb3342ae8c98fc27a657476433e/0d148052dd40b737-a7/s1280x1920/eb1076b9dc10bcac04cd23bdbaff230c4b1aa6b4.pnj)  ![](https://64.media.tumblr.com/575ff8913c69c1b4aa37456ff80a068f/caf96ee0a141d618-16/s1280x1920/279748edcff9abee144bf68b3cf4949762886665.pnj) 
 
-- # *ОЛЕГ АВАНКОРКИ* ![](https://64.media.tumblr.com/8f131e7076b94d48e8854a7443b4996d/5826926a3a081544-20/s75x75_c1/5df7143554e707e06c3bbbba3d92aede17e55d3a.gifv)
+- # *КОСТЯ АВАНКОРКИ* ![](https://64.media.tumblr.com/8f131e7076b94d48e8854a7443b4996d/5826926a3a081544-20/s75x75_c1/5df7143554e707e06c3bbbba3d92aede17e55d3a.gifv)
 ![](https://64.media.tumblr.com/1f86cd65e27f7c08e25e43fe46f6b222/1a4488c191311bd6-2a/s1280x1920/65bc6cb1aa394b37b76ad76b505e62049513efcb.pnj)
 
 - ![](https://64.media.tumblr.com/de639b8fb3ae2676e137741cc709f03c/17027e5e4f4ad458-3c/s400x600/c14a1bae8f23e952f7e6b57b65276d24bd44fa74.pnj)
 
 ![](https://64.media.tumblr.com/d7bfa88577d8a7480b40e0ed435d364f/385d9e6bdabc9a73-64/s1280x1920/229c58e9beb2d3e3b2b94578dc2e6f16bfa0e6e8.pnj)
  
-- # *АВАНЦ*О ДЛЯ АРИНЫ И САШИ* ![](https://64.media.tumblr.com/5392c826e46fb4c30467e099aed3d95b/bf70ded9225faad7-bd/s75x75_c1/bedf0467604682f47f1fcf137f2f61b0742e36d6.gifv)   ![](https://64.media.tumblr.com/a1b8448cfb08d672029e2e858919021b/d66de075ce1218fe-64/s2048x3072/a8f00ce20b676bbcc6ddac41bb402836ed60ab2f.pnj) 
+- # *АВАНЦIО ДЛЯ АРИНЫ И САШИ* ![](https://64.media.tumblr.com/5392c826e46fb4c30467e099aed3d95b/bf70ded9225faad7-bd/s75x75_c1/bedf0467604682f47f1fcf137f2f61b0742e36d6.gifv)   ![](https://64.media.tumblr.com/a1b8448cfb08d672029e2e858919021b/d66de075ce1218fe-64/s2048x3072/a8f00ce20b676bbcc6ddac41bb402836ed60ab2f.pnj)
+- ` DIAMOND SUPP TEORY.. `
+- 
 - # *ДЛЯ МАРГО ГЕЙБЕДОВНЫ* ! ! 
 -  ![](https://64.media.tumblr.com/d28c6a0f9d75de78e29d8ebf3702a233/3ac04bf7703eb82d-11/s1280x1920/6b5204d2d720539cea2c9394ad8aa7f98b65fdf5.pnj)
 -  # *NИКА НА СВО*
@@ -92,4 +95,5 @@
 
 - # THATS ALL ![](https://64.media.tumblr.com/ba0e32669f96ddc2fd8c72fc30251eda/ce6e3d46a9820ef3-8a/s250x400/2e3db6aef6d6e048fe27daf1789a64e8e1444564.pnj) ![](https://64.media.tumblr.com/65b6b63b4d2a85d70e0efe6b1686b5b4/9f08db4a6bc68ebd-b0/s1280x1920/4fc8c62ab8d2f86fbff1dfd544d26ce767296138.pnj)
 # ![](https://64.media.tumblr.com/e0db40bbad678f4ed81baec692126930/60e59f40179d3091-b2/s2048x3072/365ba73788b016a4705bcbe0d63c2179fae5a65c.pnj)
+# ХОЙОЗОНОВСКИЕ ГАНДОНЫ
 # ![](https://64.media.tumblr.com/0d5b0b93c03b493074066aece6bb9545/397f7712f78dd980-38/s1280x1920/6b49a711e3301d88a80da0dc9bb2577bb00ae834.pnj)
