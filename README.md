@@ -22,14 +22,14 @@
  **some russian shit like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
                                                                
 - # MY FANDOMS 
- *hoeverse games, multifandom, wuthering waves, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX series, strangerthings, owlhouse, amphibia, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
+ *hoeverse games, wuthering waves, pony town, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, zeno remake, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX series, strangerthings, the owl house, amphibia, adventure time, gravity falls, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
 - ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/f04d2340b39aee1ecec6f9dd0d236cf4/87121c68522c0be2-b7/s100x200/f0f7884d7c0e69efad658bbbba8d128d036a23d1.gifv) ![](https://64.media.tumblr.com/7e3851edaf934bdf90c4e477bbf39c92/ff58a3af22f3bbb7-65/s100x200/b47f0f6bcee75a19770a2e78967b2a6964089d5d.pnj)
 - # KINN
  *al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' neuvilette ' collector/king ' hobie brown spider punk ' yoshidaaaa  idk*
  ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca)
 # ![](https://64.media.tumblr.com/e389b5067f0944dfbd1d2ec7ab55bb38/2bfccfaf01ea3a48-76/s400x600/79e938ce782d6ae281b8f3ad60e2cec413695c2c.gifv)
 -  # INT
- *роблоксхаус, hiyonagi, wlw lover's, kavetham, my fandom's, listening deftones, friendly people !*
+ *роблоксхаус, hiyonagi, wlw lover's, kavetham, my fandom's, read webtoon's or shoujo-ai manga, friendly people !*
 
 <div align="center">                                                                           
   
