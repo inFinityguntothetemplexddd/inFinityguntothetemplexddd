@@ -35,7 +35,7 @@
   
  - # DNI 
    
-  **absolutely basic** - *homoph0bic, transph0bic, xenoph0bic, w1r supp0rter, misgendering, only mlw, sucker's, incest.     **ships** interact I don't really care unless if it's deemed problematic / wild cross-ship*
+  **absolutely basic** - *homoph0bic, transph0bic, xenoph0bic, w1r supp0rter, misgendering, only mlw, sucker's - who's like talk about how they hate thmslf many time, incest.     **ships** interact I don't really care unless if it's deemed problematic / wild cross-ship / have absolute wierd fans. btw i can sit w youre favourite ship even if i don't like them,just ask !*
 
 
  
