@@ -30,7 +30,7 @@
 # ![](https://64.media.tumblr.com/e389b5067f0944dfbd1d2ec7ab55bb38/2bfccfaf01ea3a48-76/s400x600/79e938ce782d6ae281b8f3ad60e2cec413695c2c.gifv)
 -  # INT
  *роблоксхаус, hiyonagi, wlw lover's, kavetham, my fandom's, read webtoon's or shoujo-ai manga, friendly people !*
-
+**before int**` please also keep in mind that my social battery may drains quite quickly, so don't blame me if i don't respond
 <div align="center">                                                                           
   
  - # DNI 
