@@ -19,24 +19,24 @@
 -  *lilith im dying] honest reaction финна когда надо раз в тысячелетие напомнить знакомым о своем существовании* 
   
 - # WHO I LISTEN ? 
- **R A D I O H E A D**,*linkin park,avenged sevenfold,Red hot chell peppers,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,guns and roses,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,Metallica,d4vd,Nirvana + others*
- **some russian shit like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
+ **R A D I O H E A D**,*linkin park,avenged sevenfold,Red hot chell peppers,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,Metallica,d4vd,Nirvana + others*
+- **'n some russian stuff like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, пм, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
                                                                
 - # MY FANDOMS 
- *hoeverse games, wuthering waves, pony town, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, zeno remake, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the beach, NETFLIX series, strangerthings, the owl house, amphibia, adventure time, gravity falls, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
+ *hoeverse games, wuthering waves, pony town, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, zeno remake, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the sea, NETFLIX series, strangerthings, gorillaz, the walking dead, the owl house, amphibia, adventure time, gravity falls, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
 - ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/f04d2340b39aee1ecec6f9dd0d236cf4/87121c68522c0be2-b7/s100x200/f0f7884d7c0e69efad658bbbba8d128d036a23d1.gifv) ![](https://64.media.tumblr.com/7e3851edaf934bdf90c4e477bbf39c92/ff58a3af22f3bbb7-65/s100x200/b47f0f6bcee75a19770a2e78967b2a6964089d5d.pnj)
 - # KINN
- *al haitham ' geto suguru ' SUNDAY ' tighnari ' nagisa ran ' chigiri ' emily ' neuvilette ' collector/king ' hobie brown spider punk ' yoshidaaaa  idk*
+ *al haitham (GI)' geto suguru (JJK) ' sunday (HSR) ' tighnari (GI) ' nagisa ran (ENSTAR) ' chigiri (BL) ' emily (CLASSOF9) ' neuvilette (GI) ' collector/king (TOH)' hobie brown spider punk (SPIDERVERSE) ' yoshidaaaa (CHWMAN) ' kung lao (MK) ' cloud (FF7) ' violet (TWD) ' shun (SBS) ' mike (ST) ' rei taylor (IPV) + idk*
  ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca)
 # ![](https://64.media.tumblr.com/e389b5067f0944dfbd1d2ec7ab55bb38/2bfccfaf01ea3a48-76/s400x600/79e938ce782d6ae281b8f3ad60e2cec413695c2c.gifv)
 -  # INT
  *роблоксхаус, hiyonagi, wlw lover's, kavetham, my fandom's, read webtoon's or shoujo-ai manga, friendly people !*
-**before int**` please also keep in mind that my social battery may drains quite quickly, so don't blame me if i don't respond
+- **before int**` please also keep in mind that my social battery may drains quite quickly, so don't blame me if i don't respond
 <div align="center">                                                                           
   
  - # DNI 
    
-  **absolutely basic** - *homoph0bic, transph0bic, xenoph0bic, w1r supp0rter, misgendering, only mlw, sucker's - who's like talk about how they hate thmslf many time, incest.     **ships** interact I don't really care unless if it's deemed problematic / wild cross-ship / have absolute wierd fans. btw i can sit w youre favourite ship even if i don't like them,just ask !*
+- **absolutely basic** - *homoph0bic, transph0bic, xenoph0bic, w1r supp0rter, misgendering, only mlw, sucker's - who's like talk about how they hate thmslf many time, incest.   - **ships** interact I don't really care unless if it's deemed problematic / wild cross-ship / have absolute wierd fans. btw i can sit w youre favourite ship even if i don't like them,just ask !*
 
 
  
