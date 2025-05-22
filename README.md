@@ -1,6 +1,6 @@
 <div align="center">  
   
-  
+![](https://i.pinimg.com/736x/29/a4/21/29a421126ba555094dd471cae651b367.jpg)  
 # ![](https://64.media.tumblr.com/49832240dc434b1cf0de44090fa55009/b7819b87512a287e-50/s1280x1920/890423b0ad46cea5e7798e09e6a723a5e6860ac5.pnj)
 # *КИСКАМ ХАЙ* ✦  !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif) ![](https://64.media.tumblr.com/6bc0d30a188342a200824e1f4fb0a096/ec4e0e3064314d61-95/s75x75_c1/188099f20ab3d825c3862f7c5906fb6e409f355a.gifv)
 # ![](https://64.media.tumblr.com/886b6f4623e78f3e25015b64dd82e889/397f7712f78dd980-a2/s1280x1920/c2571031d64b183e025c3a1695e1f5c2ee53d54b.pnj)
@@ -68,6 +68,8 @@
 - ` Do not inter written on the doorway, why can't everyone just go away. except you, you can stay. `
 ![](https://64.media.tumblr.com/f0774050c4d772abcf114fafd5e86047/35784feea8ad6d6c-9d/s640x960/a0a19fb1e1d2a493f029743aa93effc92a634e7d.pnj)
 
+- # ДЛЯ ФЕСИ БИДОСИ
+- ![](https://i.pinimg.com/736x/86/ed/76/86ed7682700e55487e66edd5614d68c5.jpg)
 - # *НЭО любит чайльда паровозиком*  ![](https://64.media.tumblr.com/3965659a9ae196fab06e02ee2ab00fa7/0eb6c0ca0f0e4b92-7c/s75x75_c1/a05e640e81884defe1cf9b480dc33c1307496e83.gifv)
 - **DOTTOLEI INT INT INT INT INT INT**
 ![](https://64.media.tumblr.com/f6a13d4884611aa2e4d13f274eb97ca2/caf96ee0a141d618-51/s1280x1920/fefbd7b2ed0d713cf3db3ec3d0ed246a95e2396c.pnj)   
