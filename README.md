@@ -69,6 +69,7 @@
 ![](https://64.media.tumblr.com/f0774050c4d772abcf114fafd5e86047/35784feea8ad6d6c-9d/s640x960/a0a19fb1e1d2a493f029743aa93effc92a634e7d.pnj)
 
 - # ДЛЯ ФЕСИ БИДОСИ ![](https://64.media.tumblr.com/4624b3f0ed1dee9109c2c20d4af26471/18e77fb01e445f9d-dc/s100x200/4c95142fe91166a16b7c272b584f50e8912616fa.gifv)
+- ![](https://64.media.tumblr.com/5ebc2280580196f0b0d1988cab5f0d8d/30819685bffdc989-bc/s2048x3072/b3b76827ba908cad11b97189deb445b41dd1ea46.pnj)
 - ![](https://i.pinimg.com/736x/86/ed/76/86ed7682700e55487e66edd5614d68c5.jpg)
 - ![](https://64.media.tumblr.com/8f70ca87bd463ec524a849b044e3f837/0f0f165f1ed76dcd-fa/s2048x3072/b0e96511b14bcee16a954f5ec78fd5146e8fff09.pnj)
 - ![](https://64.media.tumblr.com/54c53fecc792ceb8ef2daaabf3884887/af487646ae88bba8-51/s1280x1920/b913410a9b2408ea85bddfc541975acf990df1a1.pnj)
