@@ -71,6 +71,7 @@
 - # ДЛЯ ФЕСИ БИДОСИ
 - ![](https://i.pinimg.com/736x/86/ed/76/86ed7682700e55487e66edd5614d68c5.jpg)
 - ![](https://64.media.tumblr.com/8f70ca87bd463ec524a849b044e3f837/0f0f165f1ed76dcd-fa/s2048x3072/b0e96511b14bcee16a954f5ec78fd5146e8fff09.pnj)
+- ![](https://64.media.tumblr.com/54c53fecc792ceb8ef2daaabf3884887/af487646ae88bba8-51/s1280x1920/b913410a9b2408ea85bddfc541975acf990df1a1.pnj)
 - # *НЭО любит чайльда паровозиком*  ![](https://64.media.tumblr.com/3965659a9ae196fab06e02ee2ab00fa7/0eb6c0ca0f0e4b92-7c/s75x75_c1/a05e640e81884defe1cf9b480dc33c1307496e83.gifv)
 - **DOTTOLEI INT INT INT INT INT INT**
 ![](https://64.media.tumblr.com/f6a13d4884611aa2e4d13f274eb97ca2/caf96ee0a141d618-51/s1280x1920/fefbd7b2ed0d713cf3db3ec3d0ed246a95e2396c.pnj)   
