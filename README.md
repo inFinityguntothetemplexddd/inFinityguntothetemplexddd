@@ -78,7 +78,8 @@
 - # *НЭО любит чайльда паровозиком*  ![](https://64.media.tumblr.com/3965659a9ae196fab06e02ee2ab00fa7/0eb6c0ca0f0e4b92-7c/s75x75_c1/a05e640e81884defe1cf9b480dc33c1307496e83.gifv)
 - **DOTTOLEI INT INT INT INT INT INT**
 ![](https://64.media.tumblr.com/f6a13d4884611aa2e4d13f274eb97ca2/caf96ee0a141d618-51/s1280x1920/fefbd7b2ed0d713cf3db3ec3d0ed246a95e2396c.pnj)   
- ![](https://64.media.tumblr.com/e4e5bbb3342ae8c98fc27a657476433e/0d148052dd40b737-a7/s1280x1920/eb1076b9dc10bcac04cd23bdbaff230c4b1aa6b4.pnj)  ![](https://64.media.tumblr.com/575ff8913c69c1b4aa37456ff80a068f/caf96ee0a141d618-16/s1280x1920/279748edcff9abee144bf68b3cf4949762886665.pnj) 
+ ![](https://64.media.tumblr.com/e4e5bbb3342ae8c98fc27a657476433e/0d148052dd40b737-a7/s1280x1920/eb1076b9dc10bcac04cd23bdbaff230c4b1aa6b4.pnj)
+![](https://64.media.tumblr.com/8c8be68f053e18b5282834e895dee0c2/ac7ca9e806546f3b-a7/s2048x3072/d12c58df0796c84d0cd951b50b5fa9853a9c722f.pnj) ![](https://64.media.tumblr.com/575ff8913c69c1b4aa37456ff80a068f/caf96ee0a141d618-16/s1280x1920/279748edcff9abee144bf68b3cf4949762886665.pnj) 
 
 - # *КОСТЯ АВАНКОРКИ* ![](https://64.media.tumblr.com/8f131e7076b94d48e8854a7443b4996d/5826926a3a081544-20/s75x75_c1/5df7143554e707e06c3bbbba3d92aede17e55d3a.gifv)
 ![](https://64.media.tumblr.com/1f86cd65e27f7c08e25e43fe46f6b222/1a4488c191311bd6-2a/s1280x1920/65bc6cb1aa394b37b76ad76b505e62049513efcb.pnj)
