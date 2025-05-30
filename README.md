@@ -78,6 +78,7 @@
 - ![](https://64.media.tumblr.com/54c53fecc792ceb8ef2daaabf3884887/af487646ae88bba8-51/s1280x1920/b913410a9b2408ea85bddfc541975acf990df1a1.pnj)
 - # ![](https://44.media.tumblr.com/7baf5b304af2e70383a013ee123116b2/72f4ed3537d78157-ba/s640x960_f1/3908fdfeb79b8938c3fc0fb5bf68b22f1e55be61.gifv)
 - **ЦЕ МИ!>>**
+- ![](https://i.pinimg.com/736x/01/0f/ad/010fad472a8b79928b9e270367f0e4a0.jpg)
 - # *НЭО любит чайльда паровозиком*  ![](https://64.media.tumblr.com/3965659a9ae196fab06e02ee2ab00fa7/0eb6c0ca0f0e4b92-7c/s75x75_c1/a05e640e81884defe1cf9b480dc33c1307496e83.gifv)
 - **DOTTOLEI INT INT INT INT INT INT**
 ![](https://64.media.tumblr.com/f6a13d4884611aa2e4d13f274eb97ca2/caf96ee0a141d618-51/s1280x1920/fefbd7b2ed0d713cf3db3ec3d0ed246a95e2396c.pnj)   
