@@ -65,6 +65,7 @@
 -  ![](https://64.media.tumblr.com/bb13d3bff88611e17f04de99520ec404/3e83dfa3b8ae5f84-bb/s400x600/61ef58037d955d2a4dac11ef454edc749e33d033.pnj)
 -  ![](https://64.media.tumblr.com/cc1a1a07e4f111d8d2176b44ed53a3fe/f207816314d41ee4-ea/s400x600/e723968afb54ee95025a342845a314489cec892d.jpg) ![](https://64.media.tumblr.com/51d1ba0093343962c345d350cb1ea1be/12e67ff32a969332-fc/s1280x1920/8dc33151da87ccb8a38cca8a5f837d8745c9ad8e.pnj)
 -   ![](https://64.media.tumblr.com/b1b395fb470a4d02864d740ea4efe78c/c52d97ebe0e27f27-d3/s500x750/d1dcdb382dd310151442ba6a56ec14dcdc03ef30.pnj)![](https://64.media.tumblr.com/a584e380a29bcbc0d628bf9fbdf07aa3/c52d97ebe0e27f27-27/s500x750/13780316cf46b9f6b207242358b689fc9a7b0af8.pnj)
+-   ![](https://64.media.tumblr.com/11b48ed0153fa1e21451ebabd4c08608/802a09ee55d65dc6-c9/s1280x1920/dfe7b4341a8462d88b554e9d356d824658e74d0c.pnj)
 - ` Do not inter written on the doorway, why can't everyone just go away. except you, you can stay. `
 ![](https://64.media.tumblr.com/f0774050c4d772abcf114fafd5e86047/35784feea8ad6d6c-9d/s640x960/a0a19fb1e1d2a493f029743aa93effc92a634e7d.pnj)
 
