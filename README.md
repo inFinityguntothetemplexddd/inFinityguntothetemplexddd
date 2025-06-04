@@ -1,7 +1,6 @@
 <div align="center">  
 
-![](https://64.media.tumblr.com/1825cbe51d6102ad0ba0c02a8de453fb/fdafe65fc17734bb-89/s1280x1920/20deffe2f8c143bf781d0a20bee4583cb2669d66.pnj)
-
+![](https://i.pinimg.com/736x/aa/7b/1d/aa7b1d8fc4f08997cb7a0fd7bf7b5c40.jpg)
 
 # *КИСКАМ ХАЙ* ✦  !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif) ![](https://64.media.tumblr.com/6bc0d30a188342a200824e1f4fb0a096/ec4e0e3064314d61-95/s75x75_c1/188099f20ab3d825c3862f7c5906fb6e409f355a.gifv)
 # ![](https://64.media.tumblr.com/886b6f4623e78f3e25015b64dd82e889/397f7712f78dd980-a2/s1280x1920/c2571031d64b183e025c3a1695e1f5c2ee53d54b.pnj)
