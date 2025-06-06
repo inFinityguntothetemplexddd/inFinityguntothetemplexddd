@@ -18,7 +18,7 @@
 -  ![](https://64.media.tumblr.com/0d2f9a7eee84da53cfd393a90da72b14/473928ea48888009-5d/s250x400/b58a4626344f3608b7e61bd3e613b906fc9c0b62.pnj)
 -  *lilith im dying] honest reaction финна когда надо раз в тысячелетие напомнить знакомым о своем существовании* 
   
-- # WHO I LISTEN ? 
+- # LISTEN  
  **R A D I O H E A D**,*linkin park,avenged sevenfold,Red hot chell peppers,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,Metallica,d4vd,Nirvana + others*
 - **'n some russian stuff like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, пм, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
                                                                
