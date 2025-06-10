@@ -8,7 +8,7 @@
 -  ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv) ![](https://64.media.tumblr.com/f48d760e1a9f57eec987f6b878ccfc96/1925423831a33610-6c/s75x75_c1/d57771a61f134db3a85d9370c0906fd3074a4493.gifv)   
 #  ![image](https://github.com/user-attachments/assets/0dc9f630-b7ed-4220-8b34-cc8a3039afb5)  ㅤ![](https://komarev.com/ghpvc/?username=inFinityguntothetemplexddd&style=for-the-badge&color=91bdeb&label=:3) 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316lnypiwkemhvnq4warxp464fwm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)                     
-- [мамы почему не пишите] whispers: 5 баксов и я ублажу тебя как грязная сводная сестренка                                                                                                         
+- [мамы почему не пишите] whispers: 5 баксов и я ублажу тебя как грязная сводная сестренка                                   - ![](https://64.media.tumblr.com/e00726fd89c173574497f74b3e212175/4929d88787e94773-4c/s2048x3072/cc4012292b8109eeb60c545e3009b6fec30e9aa3.pnj)                                                                     
 - # PRONOUNSE  ![](https://64.media.tumblr.com/9b4986897d09b591cf5819a9fa000855/b70054f22ba99afe-66/s75x75_c1/061e7bec393d59442ee5d3afb9303a8203190010.gifv)
 - ![](https://64.media.tumblr.com/7a5d1c50b09be08a587345761c2be45a/8fa449870110a9e7-a3/s100x200/ff77ca99723ac344c94bdb23fed39160eec965bd.gifv) 
 - *S H E / H E / A N Y*  '     
