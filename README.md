@@ -21,7 +21,8 @@
 - # LISTEN  
  **R A D I O H E A D**,*linkin park,avenged sevenfold,Red hot chell peppers,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,Metallica,d4vd,Nirvana + others*
 - **'n some russian stuff like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, пм, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
-                                                               
+- ![](https://64.media.tumblr.com/36a27186a6d8e68828ca932147f1da05/4929d88787e94773-37/s2048x3072/addc0548c2dba98aeb6f0f2206370c3060783deb.pnj)
+                                                             
 - # MY FANDOMS 
  *hoeverse games, wuthering waves, pony town, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, zeno remake, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the sea, NETFLIX series, strangerthings, gorillaz, the walking dead, the owl house, amphibia, adventure time, gravity falls, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
 - ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/f04d2340b39aee1ecec6f9dd0d236cf4/87121c68522c0be2-b7/s100x200/f0f7884d7c0e69efad658bbbba8d128d036a23d1.gifv) ![](https://64.media.tumblr.com/76c6a355781b510d20fb911517901822/1064a3bcf7a5d39f-54/s100x200/4c4ed24f43ffd5f2d927ce1e4c61a424926139fc.pnj)
