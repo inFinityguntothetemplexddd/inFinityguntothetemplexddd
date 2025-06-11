@@ -29,6 +29,7 @@
 - # KINN
  *al haitham (GI)' geto suguru (JJK) ' sunday (HSR) ' tighnari (GI) ' nagisa ran (ENSTAR) ' chigiri (BL) ' emily (CLASSOF9) ' neuvilette (GI) ' collector/king (TOH)' hobie brown spider punk (SPIDERVERSE) ' yoshidaaaa (CHWMAN) ' kung lao (MK) ' cloud (FF7) ' violet (TWD) ' shun (SBS) ' mike (ST) ' rei taylor (IPV) + idk*
  ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca)
+ - ![](https://64.media.tumblr.com/3ae0a32efddb8468d32c945c8b955569/aa97ee91dae7f4aa-35/s400x600/ae2a7ea81997f29581d51b1c42c0bcee405b312d.pnj)
 # ![](https://64.media.tumblr.com/e389b5067f0944dfbd1d2ec7ab55bb38/2bfccfaf01ea3a48-76/s400x600/79e938ce782d6ae281b8f3ad60e2cec413695c2c.gifv)
 -  # INT
  *роблоксхаус, hiyonagi, wlw lover's, kavetham, my fandom's, read webtoon's or shoujo-ai manga, friendly people !*
