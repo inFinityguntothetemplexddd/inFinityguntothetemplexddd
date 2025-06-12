@@ -17,30 +17,35 @@
 - ![](https://64.media.tumblr.com/26f69c621842612c8a907cfd1fd3be87/e018519d595eb0b7-8c/s75x75_c1/21661e5a0c041ad11e73d1c1ba22a383fd218851.gifv) ![stupid](https://github.com/user-attachments/assets/2958ef86-f30e-4a16-a284-9d5450d469b3) ![](https://64.media.tumblr.com/aa6df5045151b4c8314fcc2318cb5ed1/461cc38b10614ee7-62/s75x75_c1/b75646130aae60c29337ed512da92919aecb1c78.gifv) ![54cba3ca77bf8d90f40edea7ef26518e (1)](https://github.com/user-attachments/assets/dc49cf79-de7d-4982-adc7-eccf81610ead) ![image](https://github.com/user-attachments/assets/3af9797b-2018-407c-9bef-b65c26850e85) ![image](https://github.com/user-attachments/assets/90ed55e8-44a3-46ef-b3d3-4b93d703097d)
 -  ![](https://64.media.tumblr.com/0d2f9a7eee84da53cfd393a90da72b14/473928ea48888009-5d/s250x400/b58a4626344f3608b7e61bd3e613b906fc9c0b62.pnj)
 -  *lilith im dying] honest reaction финна когда надо раз в тысячелетие напомнить знакомым о своем существовании* 
-  
+
+- # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)
 - # LISTEN  
  **R A D I O H E A D**,*linkin park,avenged sevenfold,Red hot chell peppers,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,Metallica,d4vd,Nirvana + others*
 - **'n some russian stuff like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, пм, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
 - ![](https://64.media.tumblr.com/36a27186a6d8e68828ca932147f1da05/4929d88787e94773-37/s2048x3072/addc0548c2dba98aeb6f0f2206370c3060783deb.pnj)
-                                                             
+   - # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)                
 - # MY FANDOMS 
  *hoeverse games, wuthering waves, pony town, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, zeno remake, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the sea, NETFLIX series, strangerthings, gorillaz, the walking dead, the owl house, amphibia, adventure time, gravity falls, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
 - ![](https://64.media.tumblr.com/acdb64e755a066c2c0b2d5c5a324580d/5f9ed5b1378f8ada-45/s100x200/cda82deb8fe92fb538d4b99672c4c05991d0dc21.pnj) ![](https://64.media.tumblr.com/f04d2340b39aee1ecec6f9dd0d236cf4/87121c68522c0be2-b7/s100x200/f0f7884d7c0e69efad658bbbba8d128d036a23d1.gifv) ![](https://64.media.tumblr.com/76c6a355781b510d20fb911517901822/1064a3bcf7a5d39f-54/s100x200/4c4ed24f43ffd5f2d927ce1e4c61a424926139fc.pnj)
+  - # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)
 - # KINN
  *al haitham (GI)' geto suguru (JJK) ' sunday (HSR) ' tighnari (GI) ' nagisa ran (ENSTAR) ' chigiri (BL) ' emily (CLASSOF9) ' neuvilette (GI) ' collector/king (TOH)' hobie brown spider punk (SPIDERVERSE) ' yoshidaaaa (CHWMAN) ' kung lao (MK) ' cloud (FF7) ' violet (TWD) ' shun (SBS) ' mike (ST) ' rei taylor (IPV) + idk*
  ![penis](https://github.com/user-attachments/assets/95460ac7-f801-418a-88fd-3239455470ca)
  - ![](https://64.media.tumblr.com/3ae0a32efddb8468d32c945c8b955569/aa97ee91dae7f4aa-35/s400x600/ae2a7ea81997f29581d51b1c42c0bcee405b312d.pnj)
 # ![](https://64.media.tumblr.com/e389b5067f0944dfbd1d2ec7ab55bb38/2bfccfaf01ea3a48-76/s400x600/79e938ce782d6ae281b8f3ad60e2cec413695c2c.gifv)
+- # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)
 -  # INT
  *роблоксхаус, hiyonagi, wlw lover's, kavetham, my fandom's, read webtoon's or shoujo-ai manga, friendly people !*
 - **before int**` please also keep in mind that my social battery may drains quite quickly, so don't blame me if i don't respond
-<div align="center">                                                                           
+<div align="center">                          
+  
+  - # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)       
   
  - # DNI 
    
 - **absolutely basic** - *homoph0bic, transph0bic, xenoph0bic, w1r supp0rter, misgendering, only mlw, sucker's - who's like talk about how they hate thmslf many time, incest.   - **ships** interact I don't really care unless if it's deemed problematic / wild cross-ship / have absolute wierd fans. btw i can sit w youre favourite ship even if i don't like them,just ask !*
 
-
+- # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)
  
 - # M E CORE  ![](https://64.media.tumblr.com/c822707d39738cfa3fc9a45617ffb03c/62eb575343bf36a6-bc/s250x400/0a9c4492e9b4fa8d3f4152b07ef06dabd5a4cd16.gifv)
 - ![](https://64.media.tumblr.com/0e722c87b69fbcffb172188d6431a4af/83a084a1127d896a-07/s1280x1920/d9662be9efec99ac57ac84909a99c793e44c1f36.pnj)
