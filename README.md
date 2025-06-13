@@ -119,6 +119,9 @@
 - # *Хëна для Микаzы*
 - ![](https://64.media.tumblr.com/7262a1a2dbe765e704e5ff4d2001343f/a7de47c4236e2955-8c/s1280x1920/5e8470d3838975f841563a91dd704bb28dc9fcaa.pnj)
 
+- # ДЛЯ ДАШУЛИ
+- ![](https://i.pinimg.com/736x/50/ca/41/50ca41b5cbcce435aa175bc7d259e3c9.jpg)
+
 - # ![](https://64.media.tumblr.com/aba4ad33b8c5bed19c705a696e4bb50a/b2f6621330b9688b-47/s250x400/11a33049134edc8a79b853a9e9f55c94dc09d214.gifv)
 
 
