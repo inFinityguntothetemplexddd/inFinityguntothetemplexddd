@@ -24,7 +24,7 @@
 - # LISTEN  
  **R A D I O H E A D**,*linkin park,avenged sevenfold,Red hot chell peppers,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,Metallica,d4vd,Nirvana + others*
 - **'n some russian stuff like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, пм, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
-- ![](https://64.media.tumblr.com/36a27186a6d8e68828ca932147f1da05/4929d88787e94773-37/s2048x3072/addc0548c2dba98aeb6f0f2206370c3060783deb.pnj)
+- ![](https://64.media.tumblr.com/fd31c93cae7979dbe04ddb3329aec895/b7b4dac5a9dd07e2-c6/s640x960/b8c560c99f839fc972319dd22cdb2bb83cd21fcb.pnj)
    - # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)                
 - # MY FANDOMS 
  *hoeverse games, wuthering waves, pony town, tlou, final fantasy 7, devil may CRY, resident all parts 🤍🤍, ENSTAR, zeno remake, cookie run kingdom, reverse1999, ALNST, arcane, chswman, lost in cloud, stranger by the sea, NETFLIX series, strangerthings, gorillaz, the walking dead, the owl house, amphibia, adventure time, gravity falls, random manga, blue lock, Nu carnival, dokidoki, class of 9, danganronpa, mortal combat, spideverse, DC* - **AND OTHERS!!**
