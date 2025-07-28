@@ -1,6 +1,7 @@
 <div align="center">  
 
-![](https://64.media.tumblr.com/e8877203ee18b1e33e7b2e12ec1d95e9/c41b045c2aac6450-b6/s2048x3072/02953bfb5548466970d6f4758649fc1937a441fb.pnj)
+![](https://64.media.tumblr.com/cea47ab1eac1ae74af54ef432b524e27/304e2f295cf52a89-f2/s640x960/2670f63704b39836c9b32526f4d62f53a238f62f.pnj)
+
 
 # *HI THERE* ✦  !["psichologist" by lavendergalactic](https://files.catbox.moe/v8lzsd.gif) ![](https://64.media.tumblr.com/6bc0d30a188342a200824e1f4fb0a096/ec4e0e3064314d61-95/s75x75_c1/188099f20ab3d825c3862f7c5906fb6e409f355a.gifv)
 # ![](https://64.media.tumblr.com/886b6f4623e78f3e25015b64dd82e889/397f7712f78dd980-a2/s1280x1920/c2571031d64b183e025c3a1695e1f5c2ee53d54b.pnj)
