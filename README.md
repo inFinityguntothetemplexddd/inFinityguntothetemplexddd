@@ -36,9 +36,7 @@
  - ![](https://64.media.tumblr.com/3ae0a32efddb8468d32c945c8b955569/aa97ee91dae7f4aa-35/s400x600/ae2a7ea81997f29581d51b1c42c0bcee405b312d.pnj)
 # ![](https://64.media.tumblr.com/e389b5067f0944dfbd1d2ec7ab55bb38/2bfccfaf01ea3a48-76/s400x600/79e938ce782d6ae281b8f3ad60e2cec413695c2c.gifv)
 - # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)
--  # INT
- *роблоксхаус, hiyonagi, wlw lover's, kavetham, my fandom's, read webtoon's or shoujo-ai manga, friendly people !*
-- **before int**` please also keep in mind that my social battery may drains quite quickly, so don't blame me if i don't respond
+
 <div align="center">                          
   
   - # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)       
@@ -46,7 +44,7 @@
  - # DNI 
    
 - **absolutely basic** - *homoph0bic, transph0bic, xenoph0bic, w1r supp0rter, misgendering, only mlw, sucker's - who's like talk about how they hate thmslf many time, incest.   - **ships** interact I don't really care unless if it's deemed problematic / wild cross-ship / have absolute wierd fans. btw i can sit w youre favourite ship even if i don't like them,just ask !*
-
+- **before int**` please also keep in mind that my social battery may drains quite quickly, so don't blame me if i don't respond
 - # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)
  
 - # M E CORE  ![](https://64.media.tumblr.com/c822707d39738cfa3fc9a45617ffb03c/62eb575343bf36a6-bc/s250x400/0a9c4492e9b4fa8d3f4152b07ef06dabd5a4cd16.gifv)
