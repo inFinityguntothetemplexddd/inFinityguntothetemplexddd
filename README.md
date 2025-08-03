@@ -22,7 +22,7 @@
 
 - # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)
 - # LISTEN  
- **R A D I O H E A D**,*linkin park,avenged sevenfold,Red hot chell peppers,she wants revenge,type of negative,whatsaheart,the smiths,tv girl,alex g,artic monkeys,hot freaks,CAS 🤍,girl in red,coldhart,royal blood,montell fish,green day,mother mother,faye webster,clairo,gorillaz,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,Metallica,d4vd,Nirvana + others*
+ **R A D I O H E A D**,*linkin park,avenged sevenfold,she wants revenge,whatsaheart,the smiths,tv girl,alex g,girl in red,coldhart,royal blood,montell fish,mother mother,adreanna lenker,faye webster,clairo,the cure,deftones,paramore,Foo fighters,boygenius,sombr,beabadoobee,MacDemarco,Lil Peep,Vacations,big thief + others*
 - **'n some russian stuff like** : *Валентин Стрыкало, Иван дорн, Дурной вкус,ooes, Элли на маковом поле, пм, Нежное это, Флëр, Конец солнечных дней, Электрофорез и другие.*
 - ![](https://64.media.tumblr.com/fd31c93cae7979dbe04ddb3329aec895/b7b4dac5a9dd07e2-c6/s640x960/b8c560c99f839fc972319dd22cdb2bb83cd21fcb.pnj)
    - # ![](https://64.media.tumblr.com/b546de121bb6781ba19a473239e4228f/4929d88787e94773-44/s400x600/e85efd85e970bb9d48c7d56e6e13fd7e7b7765a8.pnj)                
